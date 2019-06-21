@@ -1,2 +1,2 @@
-# congenial-telegram
+# Congenial Telegram
 a collection of publishing resources
