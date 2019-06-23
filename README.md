@@ -14,4 +14,4 @@ Maybe. I make the tools I need. But you can ask.
 Congenial Telegram is also a (monthly) zine! Download a printable PDF in the Archives folder. And, of course, I have a blog: http://jessdriscoll.com/blog/
 
 # How can I support Congenial Telegram?
-I have zines for sale on Etsy: https://www.etsy.com/ca/shop/jessdriscoll or Itch.io: http://jessdriscoll.itch.io. You can also donate once or monthly: https://ko-fi.com/jessdriscoll 
+I have zines for sale on Etsy: https://www.etsy.com/ca/shop/jessdriscoll or Itch.io: http://jessdriscoll.itch.io. You can also donate once or regularly: https://ko-fi.com/jessdriscoll 
