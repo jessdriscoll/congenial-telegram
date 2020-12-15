@@ -6,3 +6,4 @@ Print on US letter paper at 100%. Fold into an 8-page mini-zine: https://en.wiki
 - Congenial Telegram 02 published August 01, 2019
 - Congenial Telegram 03 published October 17, 2019
 - Congenial Telegram 04 published November 18, 2020
+- Congenial Telegram 05 published December 14, 2020
