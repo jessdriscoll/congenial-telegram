@@ -14,4 +14,4 @@ Maybe. I make the tools I need. But you can ask.
 Congenial Telegram is also a zine! Download the printable PDFs in the Archives folder or at the Itch.io link below. Everything else is on my website : http://jessdriscoll.com
 
 # How can I support Congenial Telegram?
-I have zines for sale: http://alldaybreakfast.org and for download at Itch.io: http://jessdriscoll.itch.io.
+I have zines for sale and for download at Itch.io: http://jessdriscoll.itch.io.
